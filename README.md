@@ -1,1 +1,1 @@
-I am an early-career librarian specializing in rare book and special collections librarianship, with experience in reference and instruction, metadata, research services, programming and outreach, and exhibit curation.[BCES CV June 2024.pdf](https://github.com/user-attachments/files/15598633/BCES.CV.June.2024.pdf)
+I am an early-career librarian specializing in rare book and special collections librarianship, with experience in reference and instruction, metadata, research services, programming and outreach, and exhibit curation.
